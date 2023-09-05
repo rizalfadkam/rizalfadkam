@@ -8,7 +8,7 @@
 
 - 🎮 I’m really interested **with anything about game**
 
-- 🧑‍💻 Beside playing game i really interested with video editing **i really interested with video editing**
+- 🧑‍💻 Beside playing game **i really interested with video editing**
 
 - 💬 You can ask me anything **about game on my discord**
 
